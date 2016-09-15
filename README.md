@@ -1,0 +1,2 @@
+# Bolou2
+www.bolou2.com Social Media Networking has created lot of option for international community to find new friends, write their blogs, upload / download videos, sell products, services online, share Video, music with the friends, find new friends, free Advertisement for anyone, Find best jobs, create profile, Create PAGEs of the Company, Product, Services, invite friends to join on www.bolou2.com , announce your EVENTs,  Create Groups of your interest and lot more for the Internet using Community.
